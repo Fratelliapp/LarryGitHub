@@ -5,5 +5,5 @@
 *Larry Plotter y el Malware de fuego 
 *Larry Plotter y la orden de Fuego 
 *Larry Plotter y el misterio del Hacker
-
+*Larry Plotter y los comic de la muerte
 
